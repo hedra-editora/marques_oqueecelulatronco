@@ -1579,7 +1579,7 @@ possui o mesmo genoma que uma pessoa terá na velhice, portanto, os
 termos “pré-embrião” e “ser humano potencial” não têm qualquer
 validade científica.
 
-[^footnote58] – Consultar a respeito
+[^footnote58]: – Consultar a respeito
     [http://www.hfea.gov.uk/Home.](http://www.hfea.gov.uk/Home]
 
 O fato é que, ao longo dos últimos anos, tanto a clonagem quanto a
